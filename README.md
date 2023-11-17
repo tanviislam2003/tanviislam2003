@@ -1,5 +1,4 @@
 ### Hi I'M Sabrina Islam 👋
-## Junior Software Engineer at Brain Station 23
 
 
 <!--
